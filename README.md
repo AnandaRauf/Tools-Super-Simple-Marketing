@@ -20,3 +20,5 @@ Super Simple Marketing Whatsapp kalian bisa pakai untuk keperluan yang kalian pe
 Super Simple Marketing Whatsapp dilindungi oleh UUD 1945 / UU Indonesia tentang hak cipta.
 
 Video Demo : https://www.youtube.com/watch?v=YYsGfH-kMBo
+
+Buy Full Source Code and Licenced Key : https://bit.ly/35UVPNA

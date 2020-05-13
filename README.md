@@ -16,7 +16,7 @@ Tanggal,bulan,tahun diciptakan dan dikembangkan : 13 Mei 2020.
 Aplikasi bernama : Super Simple Marketing Whatsapp 1 Version 1.0
 
 Super Simple Marketing Whatsapp adalah software untuk keperluan marketing whatsapp menjadi mudah.
-Super Simple Marketing Whatsapp kalian bisa pakai untuk keperluan yang kalian perlu / kalian hanya bisa memainkan saja, tidak diizinkan dijual kembali, tidak diziinkan untuk meng-crack serial keygen dan serta tidak boleh untuk mengaku ini aplikasi game kalian secara resmi.
+Super Simple Marketing Whatsapp kalian bisa pakai untuk keperluan yang kalian perlu / kalian hanya bisa memakai saja, tidak diizinkan dijual kembali, tidak diziinkan untuk meng-crack serial keygen dan serta tidak boleh untuk mengaku ini aplikasi / software kalian secara resmi.
 Super Simple Marketing Whatsapp dilindungi oleh UUD 1945 / UU Indonesia tentang hak cipta.
 
 Video Demo : https://www.youtube.com/watch?v=YYsGfH-kMBo
